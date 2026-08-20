@@ -1,0 +1,92 @@
+# Lyrics
+
+```
+[00:01.06]Life is a bitch
+[00:01.86]They told me that I don't know shit
+[00:04.79]Life is a bitch
+[00:06.12]Now I'm at the top of the list
+[00:09.28]Life is a bitch
+[00:10.58]I'm gonna smoke get rich
+[00:13.46]Life is a bitch huh...
+[00:15.23]Now my name on your girlfriend's lips
+[00:18.23]They told me that I don't know shit
+[00:21.94]Life is a bitch
+[00:23.77]Now I'm at the top of the list
+[00:26.45]Life is a bitch
+[00:28.29]I'm gonna smoke get rich
+[00:30.68]Life is a bitch
+[00:32.23]Now my name on your girlfriend's lips
+[00:35.16]Life is a bitch Huh
+[00:36.90]ដើរតាំងពីជើងត្រង់រហូតដល់ជើងពៀច
+[00:40.17]អត់អីសុី សុីព្រឹកខ្វះល្ងាច នៅមានច្រើនទៀត
+[00:44.38]ជីវិតដូចជាលុយ បើសិនមិនប្រថុយ
+[00:45.91]មានតែភ្លើងអត់មានឌុយ ចង់ទៅដេកមិនងងុយ
+[00:48.37]នៅតែហុយដូចសំរាម បើមិនតាមទៅមិនដល់
+[00:49.80]មើលមិនធ្លុះគិតមិនយល់
+[00:51.75]ជីវិតតាមបង្ខំអោយខ្ញុំខូច
+[00:53.04]ដើរខុសគន្លងដៀលខ្ញុំថាអាកំហូច
+[00:55.15]ពីរនាក់បងប្អូនខ្ញុំគេហៅថាអាដូច
+[00:59.47]ចរិតយើងទាំងពីរមិនដូចគេទេ
+[01:01.57]ឡើងឆាកមក Rap in the trap way fuck all the bitch
+[01:04.74]Yeah we from the bay I don't need delay
+[01:06.87]Everything ok yeah we fly today
+[01:08.97]ពាក្យថាជីវិតគឺវាចត់
+[01:11.28]វារទាមទារអោយលលាឡ៏មានអំនត់ និង អំនត់
+[01:14.23]ជីវិតបោកអ្នកប្រើអោយហត់
+[01:15.73]ស្បថនឹងខ្លួនឯង
+[01:18.98]ស្អប់នឹងខ្លួនឯង
+[01:19.77]ខឹងនឹងខ្លួនឯង
+[01:21.33]I don't know me
+[01:22.67]ទីបញ្ចប់ក៏នៅជាខ្លួនឯង ក៏នៅម្នាក់ឯង
+[01:23.72]គ្មានអ្នកណាមកជួយអ្នកឯង for free
+[01:26.86]គិតហើយនិងគិតខឹងជីវិតដែលប្រព្រឹត្តមានកូនចិត្ត និងគំនិត
+[01:28.90]But life is a bitch
+[01:30.87]មិនអាចបន្ដ ទោះខំរស់ទាំងត្រដរវានៅតែសើចចំអក
+[01:34.03]But life is a bitch
+[01:35.36]But life is a bitch
+[01:36.06]មិនកេងបន្លំមានបេះដូងដែលស្អាតស្អំនៅតែគេមើលមិនចំ
+[01:42.91]I said life is a bitch
+[01:44.39]Life is a bitch
+[01:46.13]They told me that I don't know shit
+[01:48.52]Life is a bitch
+[01:50.37]Now I'm at the top of the list
+[01:53.02]Life is a bitch
+[01:57.23]Life is a bitch
+[01:58.64]Now my name on your girlfriend's lips
+[02:01.13]Life is a bitch, but I'm a king
+[02:02.89]ដូចជាម្ចាស់, rule over my dreams
+[02:04.99]All the ស្រីស្អាត wanna fuck with me
+[02:07.09]If I could fuck one though I'd give life this D (give life this D)
+[02:10.47]Whatcha know about me
+[02:11.86]Sacrifice my needs as I build my team
+[02:13.93]But I made a life bar and a Baramey hit
+[02:19.14]Baramey skates...
+[02:21.04]Watch me make the art I made flip from the part of the States
+[02:23.12]Where the palm trees sit and the bomb weed hit
+[02:26.07]Roll a blunt right quick me and Vann Da lit
+[02:28.19]រហ័សនាម A-GVME
+[02:29.41]Y'all gonna know this name
+[02:31.04]I maintain, all up in ya Mama's mainframe
+[02:33.70]Learned how to walk again how to rock a lane
+[02:38.17]Grew from awkward game to Monsta thangs
+[02:40.06]To see the worst of people; had to walk away
+[02:42.47]All just to end up lost again
+[02:44.57]Lost in the lap of an Instagram trap, goddamn
+[02:46.63]Contoured face with a fake ass
+[02:49.50]Perform fake-ness how long can fake last
+[02:52.13]What's a legacy you can make last
+[02:55.80]I wake in the morning on missions to give
+[02:57.42]You never needed permission to live
+[02:59.33]An admission of weakness a scissor-like gift
+[03:02.14]Cut through the bull, don't end up with shit
+[03:04.04]កំពុងរវល់ ខ្ញុំរវល់ making hits
+[03:06.11]Vann Da និង A-GVME enlightenment shit
+[03:08.26]មានកំលាំងពីអ្នកតា making Baramey lit
+[03:10.98]Life is a bitch
+[03:15.16]Life is a bitch
+[03:16.79]Now I'm at the top of the list
+[03:19.37]Life is a bitch I'm gonna smoke get rich
+[03:23.85]Life is a bitch
+[03:25.78]Now my name on your girlfriend's lip
+
+```
