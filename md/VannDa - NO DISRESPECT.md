@@ -1,0 +1,122 @@
+# Lyrics
+
+```
+សម័យនេះគេស៊ូ ពួកអាខ្ជិលរស់មិនយូរ
+You're already dead
+សម័យនេះគេស៊ូ ពួកអាខ្ជិលរស់មិនយូរ
+You're already dead
+សម័យនេះគេស៊ូ ពួកអាខ្ជិលរស់មិនយូរ
+You're already dead
+សម័យនេះគេស៊ូ ពួកអាខ្ជិលរស់មិនយូរ
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+AK47 I don't need it
+ប៉ះតែចុងប៊ិចមួយរំពេច you gon' beg me
+គិតខុសហើយបើអ្នកចង់បៀតបៀន
+បញ្ហាទោះមិនមាន ទាល់តែអ្នកចង់មាន
+ខំប្រឹងរក ប្រឹងចាយ
+គេខឹងខ្ញុំប្រឹងរកប្រឹងទុក
+រឿងខ្ញុំសោះម៉េចអ្នកឯងក្រពុលមុខ
+ម៉េចក៏អ្នកចាក់ចូច ម៉េចក៏អ្នកចាក់រុក
+ម៉េចក៏អ្នក disrespect
+ចង់ឈានមួយជំហានឱ្យដល់មេឃ
+គិតថាខ្ញុំនេះនៅក្មេងពេក
+ចង់លួងខ្ញុំឱ្យដេក
+គិតថាខ្លួនឈរលើមេឃ
+MF, you're not Johnny Cage!
+Ain't no disrespect out here!
+Ain't no disrespect out here!
+មុននឹងអ្នកវាយតម្លៃមើលខ្ញុំឱ្យច្បាស់ ប្រយ័ត្នទឹកមាត់ខ្ញុំរៀលកៃ
+តែផ្ដេសតែផ្ដាសដូចសម័យបនប្រល័យ
+ទុកខ្ញុំអ្នកដើរឱ្យអ្នកឯងឈប់ស្រមៃ
+ផ្លាស់ប្ដូរដូចសម័យ ដូចជាអង់តែន ដូចជាផ្កាយរណប
+ផ្លាស់ប្ដូរ generation ថ្មីដូចជាខ្ញុំឆ្មប
+អ្នកឯងធ្លាប់ច្រកថង់ ខ្ញុំដូរមកច្រកដប
+ខ្ញុំ Limited Edition
+Look at my vision សំឡេងមាន license
+បើបានស្ដាប់ខ្ញុំយល់ដូចបានផឹកយិនសិន
+ដូចពាក់អាវប៉ាក់ដិន
+ប៉ិនរកលុយដូចចិន
+ចេះតស៊ូដូចតេជោដំឌិន
+Hop in the stu មាន flow ត្រូវកិន
+កិនដូចដាវ ហើយស្រក់ដូចលង់ហិន
+ពួកអាណាបែកៗ អញស្រុះអ្ហែងឱ្យឆ្អិន
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+B*tch you never know ស្ថាបនិក
+បទ J+O bring the new flow to show the world
+I just want to go everywhere
+I go គ្រប់ជំហាន អ្នកឈរគេតែងតែមើល
+Domino ជីវិតដូច domino
+ចាក់ក្រាស់ចេញស្ដើងដូចជាពណ៌លីអូ
+Hit the road, man I hit the flow
+បើគិតអីមិនចេញ I hit Malboro
+I don't wanna know where you at
+មើលតែមួយភ្លែត ទ្រឹស្ដីឡើងដូចកវី
+រៀនយូរជាងនិស្សិតពេទ្យ
+តែវា so sad ចេះតែអាខាងទ្រឹស្តី
+ប្រាប់ប៉ុណ្ណឹង why you mad? Why you hate?
+ពួកអានេះក្មេងលេងដី
+ប៉ិនតែមើលងាយពេបជ្រាយ
+ការពិតវាទន់ជ្រាយ អញឱ្យអ្ហែងដេកក្នុងដី
+ចាំមើលវាដូចចាំមើលពេលដែលយើងធ្វើអីមួយខុសវាថាយើងភ្លើ
+សុីសឺ អានេះ សុីសឺ MF ចង់ឱ្យគិតគូរឡើងលើ
+ចង់មើលក្រោមមើលលើ
+បើមើលប៉ះ me ឱ្យស្គាល់ Undertaker
+សើរើមើលពួកអាឡេឡឺ ឱ្យអ្ហែងឈប់ភ្លើ
+ឱ្យអ្ហែងដឹងថាអាណានៅក្រោម នៅលើ
+(Oh flow ឡូយណាស់បង!)
+My flow, so impressive
+កម្លាំងខ្ញុំខ្លាំង ថ្មមិនងាយអុីវ
+ខួរក្បាលដាំង គិត creative
+Got it on me
+ជីវិតបើមិនដូចក្នុងរឿង ខ្ញុំនិយាយលើកទី ២
+Mess with me គ្មានលើកទី ២
+ចាប់ពួកអ្ហែងបោក ពួកអានំរ៉ូទី
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+No disrespect, disrespect
+You're already dead
+
+```
