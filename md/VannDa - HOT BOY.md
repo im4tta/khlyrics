@@ -1,0 +1,92 @@
+# Lyrics
+
+```
+[00:02.24]Shawty I’m hot
+[00:03.55]Imma hit that like your man can not
+[00:06.28]I got the internet why you want my hotspot
+[00:09.13]They never pop off watch out I’m the god
+[00:11.10]Woah woah woah woah shawty I’m hot
+[00:15.19]Imma hit that like your man can not
+[00:17.98]I got the internet why you want my hotspot
+[00:20.91]They never pop off watch out I’m the god
+[00:24.11]Bro shut the f*ck up or Imma f*ck up your day
+[00:27.41]អានេះមិនមែនជាគ្នាយើងវាជាគ្នាគេ
+[00:30.44]Don’t hit ma phone get the f*ck out ma way
+[00:33.32]I don’t need no fake friend
+[00:34.80]I got ninety k in ma hands
+[00:37.01]Hundred bands, say again
+[00:38.83]What’s your name
+[00:39.92]Tell your friends you are lame
+[00:41.79]God damn same same difference
+[00:43.87]Suck my d*ck my ការ៉េម
+[00:45.30]Take ma tip play ma game
+[00:46.82]I’m the king kiss the ring
+[00:48.51]Put the lil boy in the dirt
+[00:50.39]f*ck ur b*tch, f*ck ur mama, f*ck what u heard
+[00:53.63]Tryna be me but u dumb as f*ck
+[00:56.65]Broke ass homie why your life so stuck
+[00:59.48]ជីវិតវាមិនអស្ចារ្យ តែវាគិតតែអួត
+[01:02.15]ដាក់ហែងនៅ១កន្លែងអោយហែងឆ្កួតនឹងអំនួត
+[01:05.26]វាគិតថាខ្លួនវាមានតែមួយនៅលើលោក
+[01:08.14]កង្កែបក្នុងអណ្ដូង ចង់ធ្វើស្ដេចនៅលើគោក
+[01:11.87]Shawty I’m hot
+[01:13.39]Imma hit that like your man can not
+[01:16.26]I got the internet why you want my hotspot
+[01:19.09]They never pop off watch out I'm the god
+[01:22.30]Woah woah shawty I’m hot
+[01:25.03]Imma hit that like your man can not
+[01:27.82]I got the internet why you want my hotspot
+[01:30.67]They never pop off watch out I'm the god
+[01:34.11]Woah, b*tch I'm good and I'm bad
+[01:37.29]I'm good with the flow
+[01:38.55]But I'm bad in the bed
+[01:40.27]Come to my condo if your kitty wet
+[01:43.19]ងូតទឹកឲ្យហើយ ហើយអង្គុយចាំមួយភ្លែត
+[01:46.80]I just wanna smoke before I hit (why)
+[01:49.84]Cause I’m the man who she needs (woah)
+[01:52.62]Cool outside but I'm hot
+[01:55.51]ព្រាយក្នុងលលាដ៏ កំពុងតែសុំចុះចត
+[01:58.46]Get off ma dick I just wanna headshot
+[02:01.23]ចេញទៅអោយឆ្ងាយនៅទីនេះគ្មានចំណត
+[02:09.41]ឃើញខ្ញុំនៅក្រៅ but we can’t hang out
+[02:10.70]មុខមាត់មិនសូវនិយាយ តែសម្ដីមិនបាច់ប្រដៅ
+[02:12.31]B*tch I’m a player មើលធ្លុះដល់ក្រយ៉ៅ
+[02:13.69]Real talk កុំក្អក ប្រយ័ត្នតែហ្មងសៅ
+[02:15.12]Talk to me និយាយអោយចំ point
+[02:16.33]Smoke with me no u can't get a joint
+[02:17.75]F*ck with me no your bitch so ត្រលាន់
+[02:19.08]Number one on top I got a lot of មាន់
+[02:20.50]ក្ដីស្រម៉ៃតាំងពីតូច I gotta blow my sh*t up
+[02:21.96]ដួល again ងើប again ខ្ញុំកំពុងតែប្រញាប់
+[02:23.42]ដៃទាំង២មមាញឹក ជើងទាំងពីរក៏ស្វាហាប់
+[02:24.87]លោតផ្លោះបោះជំហ៊ាន ខ្ញុំកំពុងតែហោះស្រាប់
+[02:26.44]ឈប់សំរាកនឹងគេដែរក៏ប៉ុន្ដែ មិនដែលបានដល់ស្អែក
+[02:29.28]វាគ្មានថ្ងៃអាទិត្យណាសំរាប់ខ្ញុំ វាជារឿងពិតមិនអាចប្រកែក
+[02:32.19]ត្រូវតែងើបក្ដិតទាន់ចិត្តនៅក្ដៅ
+[02:33.64]ស្អីធ្វើមិនកើតត្រូវទុកមួយឡែក បញ្ចេញកំលាំង
+[02:35.81]ដូចចេញទៅច្បាំងតាំងចិត្តអោយខ្លាំងរឹងដូចជាដែក f*ck
+[02:39.05]M******* ត្រូវធ្វើឲ្យបាន
+[02:41.95]កុំខ្វល់នឹងសម្ដីពួកតិរច្ឆាន
+[02:43.94]Imma f*cking dope មានមួយចានសុីមួយចាន
+[02:46.78]ដើរទៅមុខកុំអស់សង្ឃឹមពួកអានឹងវាមិនប៉ុន្មាន
+[02:50.47]Aye នេះគឺជាផ្លូវដែលត្រូវទៅ
+[02:53.26]គេតម្រូវអោយយើងចាប់កាន់សៀវភៅ
+[02:55.58]មើលអោយជាក់ញាក់ចិញ្ចើម
+[02:56.97]អ្នកត្រៀមខ្លួនហើយឬនៅ
+[02:59.80]ត្រៀមខ្លួនហើយឬនៅ
+[03:02.61]សួរថាត្រៀមហើយឬនៅ
+[03:05.51]បើសិននៅត្រូវតែទៅ
+[03:07.11]Woah woah woah shawty I’m hot
+[03:09.71]Imma hit that like your man can not
+[03:12.54]I got the internet why you want my hotspot
+[03:15.41]They never pop off watch out I'm the god
+[03:18.93]Woah Woah, Shawty I’m hot
+[03:21.36]Imma hit that like your man can not
+[03:24.12]I got the internet why you want my hotspot
+[03:27.05]They never pop off watch out I'm the god
+[03:31.34]Shawty I’m hot
+[03:32.99]Imma hit that like your man can not
+[03:35.81]I got the internet why you want my hotspot
+[03:38.70]They never pop off watch out I'm the god
+
+```

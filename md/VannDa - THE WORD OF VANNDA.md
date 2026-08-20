@@ -1,0 +1,91 @@
+# Lyrics
+
+```
+Shawty I’m hot
+Imma hit that like your man can not
+I got the internet why you want my hotspot
+They never pop off watch out I’m the god
+Shawty I’m hot
+Imma hit that like your man can not
+I got the internet why you want my hotspot
+They never pop off watch out I’m the god
+Bro shut the f**k up or imma f**k up your day
+He's not with us, he's with the others
+Don’t hit ma phone get the f**k out ma way
+I don’t need no fake friend
+I got ninety k in ma hands
+Hundred bands say again
+What’s your name tell your friends
+You are lame
+God damn same same difference
+Suck my d*ck my sorbet
+Take ma tip play ma game
+I’m the king kiss the ring
+Put the lil boy in the dirt
+F**k ur bitch f*ck ur mama f**k what u heard
+Tryna be me but u dumb as f**k
+Broke ass homie why ur life so stuck
+Your life is not dope but you always brag
+I will knock you down from being egregiously proud
+You think it's only you who lives on the earth
+A frog in the well wants to be king on the land
+Shawty I’m hot
+Imma hit that like your man can not
+I got the internet why you want my hotspot
+They never pop off watch out im the god
+Shawty I’m hot
+Imma hit that like your man can not
+I got the internet why you want my hotspot
+They never pop off watch out im the god
+B*tch im good and im bad
+Im good with the flow
+But im bad in the bed
+Come to my condo if your kitty wet
+Take a bath and wait me for a bit
+I just wanna smoke before I hit (why?)
+Cause I’m the man who she needs (woah!)
+Cool outside but im hot
+Demon in the skull would like to ask for parking
+Get off ma d*ck I just wanna headshot
+Go away, you can't park here
+Do you have any more hardcore bars for us? Yeah I got you
+(hold up speed up!)
+Saw me at the outside but we can’t hang out
+Look like an introvert but your words have no discipline
+B*tch I’m a player I know what you're thinking
+Don't cough be careful don't be lame
+Talk to me talk directly on point
+Smoke with me no u can't get a joint
+F**k with me no your b*tch so greasy
+Number one on top I got a lot of chicken dinner
+The dream since I was young
+I gotta blow my sh*t up fall again get up again I'm in a hurry both hands are busy
+Both legs are energetic, jumping, I'm flying
+Having a day off like others but never arrived tomorrow
+It has no sunday for me it is true can't argue
+Get your butt up if your mind still hot what does not work keep it aside
+Power out like a battlefield, strong as steel
+******** it has to be done
+Don't care about the words of the beast
+Imma f**king dope have one plate eat one bowl
+Go ahead, don't despair they're not useful
+It's the way that we have to go they provide us to grab the book
+Take a closer look
+Are you ready?
+(are you ready?)
+(are you ready to be done?)
+If not, you must go
+Shawty I’m hot
+Imma hit that like your man can not
+I got the internet why you want my hotspot
+They never pop off watch out im the god
+Shawty I’m hot
+Imma hit that like your man can not
+I got the internet why you want my hotspot
+They never pop off watch out im the god
+Shawty I’m hot
+Imma hit that like your man can not
+I got the internet why you want my hotspot
+They never pop off watch out im the god
+
+```
